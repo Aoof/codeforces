@@ -6,3 +6,8 @@
 
 ## Sketch
 > i don't even know... just gibberish i guess
+
+---
+<br>
+
+> *I love this so much cause it's liek maths and programming combined ^-^*
